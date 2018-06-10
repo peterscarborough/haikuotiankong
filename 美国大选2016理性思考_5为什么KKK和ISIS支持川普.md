@@ -1,10 +1,17 @@
 为什么KKK,ISIS和俄国支持川普？
+
 前文（之四）介绍分析了这次大选中出现两个前所未有的现象，许多共和党和保守派人士站出来反对共和党提名人川普, 和绝对多数的社会各界精英反对川普，支持喜来利。接下来讨论一下第三个前所未有的现象，支持川普的是哪一些团体和国家，以及川普的言行，商业和税务纪录。
+
 三K党和美国纳粹党支持川普的原因
+
 据华盛顿邮报2016/11/01的报道，在仅有的不超过10家支持川普的报刊中，最突出的是三K党的喉舌“十字军”（The Crusader）。其首页全版的宣言：”川普要恢复美国的曾经的伟大，那么我们要问自己，是什么使到美国曾经伟大？答案很简单，美国曾经伟大不在于我们的建国之父们做了什么，而是他们是什么人？。。。美国立国之本是白人基督教的共和国，因此而成为一个伟大的国家。” 
+
 川普竞选团立刻声明回绝了这个支持。但是，在2016/02/28共和党初选期间的CNN电视采访节目里，川普被问到“你是否回绝David Duke和其他的白人至上组织的支持？”川普回答“我根本就不知道关于David Duke的任何事情。”CNN的节目主持人给川普三次机会澄清，但是川普都含糊其辞，拒绝和三K党的党魁David Duke划清界限。川普这样的言论立刻遭到广泛的谴责，包括很多共和党人士。
+
 从2015年六月参加总统选举，八个月之后的初选，还自称不知道David Duke是什么人，这就相当于二年级小学生还不知道1+1=2，这是十足的无知ignorance或者是不做功课。但是，事实是早在1991/11/19的CNN Larry King 电视采访中，川普的回答就表明他知道David Duke 是何人及其性质。2000/02/13，川普还发表声明表示他不认同改革党，因为该党包括了David Duke，他是一个新纳粹分子。
+
 这些事实证明川普公然说谎，但是为什么要说谎呢？因为在初选当中，他发现他的各种各样煽动性的种族言论会（1）得到媒体的广泛报道，也就是免费的竞选宣传 （MarketWatch2016/05/16的报道，川普得到将近三十亿美元免费媒体曝光），（2）吸引很多白人，特别是没有大学教育的白人日益成为他的铁票，而（3）因为共和党初选有多达17个参选人，因此只要在每一个州的初选中拿下20%左右就可以取胜。而川普早2011年的时候就开始传播奥巴马不是出生在美国，以此来暗示奥巴马当选总统是非法，这个谣言至今还有20%的美国人相信，这些就是川普的铁杆票盘。
+
 https://www.washingtonpost.com/news/post-politics/wp/2016/11/01/the-kkks-official-newspaper-has-endorsed-donald-trump-for-president/
 https://www.washingtonpost.com/news/fact-checker/wp/2016/03/01/donald-trump-and-david-duke-for-the-record/
 http://www.politico.com/story/2016/02/david-duke-trump-219777
@@ -25,10 +32,10 @@ http://www.latimes.com/politics/la-na-pol-trump-immigration-deportation-20160822
 http://www.alternet.org/grayzone-project/trump-effect-schools-how-trumps-hate-speech-traumatizing-americas-children
 
 北韩，俄国，伊朗强硬派，ISIS支持川普的原因
+
 路透社2016/06/02报道，北韩的官方媒体之一的“今日北韩人民共和国”（DPRK Today）在其网站称川普是一个充满智慧的选择。
 https://www.washingtonpost.com/news/worldviews/wp/2016/05/31/north-korean-state-media-offers-support-for-wise-politician-donald-trump/
 http://www.reuters.com/article/us-northkorea-usa-trump-idUSKCN0YN35S
-
 
 CNN2015/12/17报道，俄国的普金对川普大为赞赏，称之为绝顶聪明，杰出人士，是总统选举中的绝对领先者。而川普则也回报赞赏普金是一个强有力的领袖，而奥巴马则是一个很糟糕的领袖。如果是一个民主党人称赞一个敌对国的独裁者，同时批判共和党总统，肯定会被谴责为叛国。但是共和党对于川普如此出格的言论却置若罔闻。的确，川普认为北约组织过时了，盟国如果不给钱，美国就应该撤军，这些言论对于俄国普金的确非常悦耳。
 http://www.cnn.com/2015/12/17/politics/russia-putin-trump/
