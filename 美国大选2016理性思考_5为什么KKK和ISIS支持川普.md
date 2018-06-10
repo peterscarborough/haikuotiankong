@@ -126,7 +126,9 @@ http://www.nytimes.com/2016/08/06/opinion/why-we-ask-to-see-candidates-tax-retur
 其实关于喜来利克林顿，不论是全球权威性的The Economist 和Foreign Policy，偏自由派的The Atlantic 和New York Times，中间派的USA Today，还是许多保守派的 The Arizona Republic，和社会各界精英都已经给出了很好的陈述，笔者就不需重复了。
 
 尊敬的各位读者，兼听则明，三思后行，理性思考，慎重抉择。
+
 海阔天空
 2016/11/05于纽约
+
 后记：笔者这次关于2016年大选的思考系列，至此完成。谢谢所有读者的垂注和反馈，不论是正面反面，笔者都非常感激。
 
